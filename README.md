@@ -1,0 +1,1 @@
+# 10-sinif-fizik-moduler-soru-bankasi-32
